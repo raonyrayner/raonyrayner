@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @raonyrayner
-- 👀 I’m interested in chance my carrear 
+- 👀 I’m interested in change my career
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on everything that i could
 - 📫 How to reach me raony.rcgs@gmail.com
